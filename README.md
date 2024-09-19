@@ -1,1 +1,0 @@
-# ltennyso.github.io
